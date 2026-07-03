@@ -1,1 +1,1 @@
-# pharlacie-santya-mahaca
+# pharmacie-santya-mahaca
