@@ -1,1 +1,1 @@
-# pharmacie-santya-mahaca
+# pharmacie-sanoh
